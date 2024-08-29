@@ -6,8 +6,9 @@
 - https://www.instagram.com/__mr_dil___?igsh=MWpoMmNwaXNvczBvZg%3D%3D&utm_source=qr ...
 - 😄 I JUST TRUST MY IDEOLOGY: ...
 - ⚡ love to learn new things: ...
-- 
+- Want to learn more about the editing 
 <!---
 BeharaDileep/BeharaDileep is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
---->
+---> MY LINKED IN PROFILE https://www.linkedin.com/public-profile/settings
+quick learner
